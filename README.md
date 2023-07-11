@@ -11,7 +11,7 @@ I’m looking to collaborate on anything!
 </br>
 Ask me about anything, I am happy to help.
 </br>
-How to reach me: umeshabalasooriya1998@.com
+How to reach me **umeshabalasooriya1998@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
