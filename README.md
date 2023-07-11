@@ -1,6 +1,6 @@
 ### Hi there 👋 I'm Umesha Balasooriya
 <h3 align="left">AbouT Me:</h3>
-</br></br>
+</br>
 I’m a Former Trainee UI/UX Engineer at Vidura Solutions.
 </br>
 I’m a BSc(Hons) IT & M Student at University of Moratuwa.
