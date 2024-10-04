@@ -1,4 +1,4 @@
-### Hi there 👋 I'm Umesha Balasooriya
+### Hi there 👋 I'm Umesha Anjani
 <h3 align="left">About Me:</h3>
 I’m a Former Trainee UI/UX Engineer at Vidura Solutions.
 </br>
